@@ -1,1 +1,3 @@
 # thestupidthing
+This has nothing innit tommyinnit
+SUBSCRIBE TO TECHNOBLADE
